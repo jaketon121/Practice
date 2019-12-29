@@ -23,3 +23,9 @@ Its all about the first step ...for Low Resistance ...
 
 
 
+
+
+-  tHE onLy THing yOu Can Do Is , conVinCing him To let hishands off of you. 
+
+- You're becoming conscious of your unconscious thoughts .When you become conscious of your unconscious thoughts, you gain the power to manipulate them .do you get this ?
+
