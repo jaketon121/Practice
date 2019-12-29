@@ -1,6 +1,9 @@
 
 
 This is The Only Solution to Procrastination. Learn How to Stop Procrastinating
+
+# you have to change his perception of the reality .
+
 https://www.youtube.com/watch?v=44Iuns3klPs 
 
 - Unless you learn how to beat procrastination,you will end up just becoming another mediocre.
@@ -15,4 +18,8 @@ https://www.youtube.com/watch?v=44Iuns3klPs
 1） Create project plans ,even for very simple projects,Like as simple as creating a report,put everthing in a project plan.
 
 Create a work breakdown structures ,tasks,activities,and then you put them in some place (gantt chart)...  you can see the entire sequence of activities from start to finish. 
+
+Its all about the first step ...for Low Resistance ...
+
+
 
